@@ -80,8 +80,7 @@ For me everything build by Tara Pattenden is RAD, it's simpler then most, but I 
 
 ##GENGE?
 ###Yes!
-
-											##Zoroastrianism
+##Zoroastrianism
 ###— Yes!
 
 ###Whits synthetic-instrument is mainly used on this recordings?
